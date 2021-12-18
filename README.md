@@ -28,3 +28,5 @@ Show your relevant experience as well as highlight the role you are applying to!
 Having these is your only chance in being able to stand out among some thousands of applicants for each role.
 
 Below is a Free CV template which I included to help you get an idea of what structure, grammar & tone to use to make your CV stand out.
+
+[https://docs.google.com/document/d/1cAFiMi2GotaSwqrEIOfNHLtQZHbqGe9GLURGpVPsBqw/](CLick here)
