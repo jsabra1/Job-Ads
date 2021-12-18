@@ -8,19 +8,17 @@ If this key is broken, you’ll get locked out and get rejections.
 
 AND there’s no number of doors you can try that will make this broken key work!
 
-So stop asking for company connections & MORE job opportunities, and start thinking about the quality of your CV.
+So instead of looking for company connections & MORE job opportunities, maybe it's worth thinking about the quality of your CV.
 
-There are literally hundreds of ways you can connect with people & get access to thousands of opportunities.
+There are hundreds of ways you can find new connections & get access to thousands of opportunities.
 
-But if somehow you still struggle to find a job or an employer that will provide you with visa sponsorship.
+But if somehow you still struggle to find a job or an employer that will provide you with visa sponsorship, it's likely not because of a numbers problem, it’s a quality problem.
 
-This means your issue is not a numbers problem, it’s a quality problem.
-
-The quality of your CV, and your LinkedIn profile, and the way you are presenting yourself to these companies.
+The quality of your Candidate Presence, (CV, LinkedIn profile, etc..) and the way you are presenting yourself to these companies.
 
 That’s what’s not working out for you.
 
-The three key highlights your CV & profile need to have are:
+The main three factors to keep in mind when building you Candidate Presence are: 
 
 - Be compatible with the UK job market & formatted as such.
 - Be targeting a niche skill or a high demand job in the UK.
