@@ -29,4 +29,4 @@ Having these is your only chance in being able to stand out among some thousands
 
 Below is a Free CV template which I included to help you get an idea of what structure, grammar & tone to use to make your CV stand out.
 
-[https://docs.google.com/document/d/1cAFiMi2GotaSwqrEIOfNHLtQZHbqGe9GLURGpVPsBqw/] (Click here)
+[CV Template] (https://docs.google.com/document/d/1cAFiMi2GotaSwqrEIOfNHLtQZHbqGe9GLURGpVPsBqw/)
