@@ -25,7 +25,8 @@ The three key highlights your CV & profile need to have are:
 - Be compatible with the UK job market & formatted as such.
 - Be targeting a niche skill or a high demand job in the UK.
 - Show your relevant experience as well as highlight the role you are applying to!
-- Having these is your only chance in being able to stand out among some thousands of applicants for each role.
+
+Having these is your only chance in being able to stand out among some thousands of applicants for each role.
 
 Below is a Free CV template which I included to help you get an idea of what structure, grammar & tone to use to make your CV stand out.
 
