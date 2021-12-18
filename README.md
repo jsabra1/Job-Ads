@@ -1,15 +1,25 @@
 # Template CV
 
 Your CV is the first representation employers will look at when they're considering you for a role.
+
 It’s the key which opens up the door for you to the opportunity you’re after.
+
 If this key is broken, you’ll get locked out and get rejections.
+
 AND there’s no number of doors you can try that will make this broken key work!
+
 So stop asking for company connections & MORE job opportunities, and start thinking about the quality of your CV.
+
 There are literally hundreds of ways you can connect with people & get access to thousands of opportunities.
+
 But if somehow you still struggle to find a job or an employer that will provide you with visa sponsorship.
+
 This means your issue is not a numbers problem, it’s a quality problem.
+
 The quality of your CV, and your LinkedIn profile, and the way you are presenting yourself to these companies.
+
 That’s what’s not working out for you.
+
 The three key highlights your CV & profile need to have are:
 
 - Be compatible with the UK job market & formatted as such.
