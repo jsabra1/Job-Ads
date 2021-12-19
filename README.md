@@ -31,4 +31,3 @@ Below is a Free CV template which I included to help you get an idea of what str
 [CV Template](https://docs.google.com/document/d/1cAFiMi2GotaSwqrEIOfNHLtQZHbqGe9GLURGpVPsBqw/)
 
 [Follow these steps to copy the file)](https://support.google.com/docs/answer/49114?hl=en-GB&co=GENIE.Platform%3DDesktop#zippy=%2Cmake-a-copy-of-a-file)
-
